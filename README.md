@@ -10,5 +10,5 @@ Developer & Lecturer
 
 
                   
-917&hide_border=true&locale=en&custom_title=Top%20%Languages" alt="Top Languages" /></a>
+
 
